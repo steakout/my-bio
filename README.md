@@ -5,7 +5,7 @@
 **hi i am a bio. do read thanks**
 
 
-**-** pronouns are he/him. use these always regardless of who my character is, thanks :)
+**-** pronouns are he/him. use these *always regardless of who my character is,* thanks :)
 
 **-** i also use it/its but if you're a coward you can just call me he
 
@@ -29,7 +29,7 @@
 
 **-** people who bully others for not having "good skins" in general
 
-**-** people who start drama that goes on for like 3 hours, its a pony game who cares (cough cough the docks cough)
+**-** people who start drama that goes on for like 3 hours, its a pony game who cares (*cough cough* the docks *cough*)
 
 **-** overly sexualised skins/jokes in the safe server (ew)
 
